@@ -15,3 +15,4 @@ Qualquer dúvida entre em contato
 ![](https://media.tenor.com/MCUPcdyraX0AAAAC/%E0%B9%80%E0%B8%A8%E0%B8%A3%E0%B9%89%E0%B8%B2.gif)
 ![](https://media.tenor.com/b9QeJPEBspAAAAAC/absolute-cinema-kitagawa-marin.gif)
 ![](https://media.tenor.com/l2F9LrkJEKYAAAAC/yotsuba-nakano.gif)
+![](https://media.tenor.com/7ddM67UZbgYAAAAC/kaoruko-waguri-waguri-kaoruko.gif)
