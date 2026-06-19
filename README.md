@@ -13,4 +13,4 @@ Qualquer dúvida entre em contato
 <a href="mailto:daniel.da.silva@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" target="_blank"/></a>
 
 ![](https://media.tenor.com/MCUPcdyraX0AAAAC/%E0%B9%80%E0%B8%A8%E0%B8%A3%E0%B9%89%E0%B8%B2.gif)
-(https://media.tenor.com/b9QeJPEBspAAAAAC/absolute-cinema-kitagawa-marin.gif)
+![](https://media.tenor.com/b9QeJPEBspAAAAAC/absolute-cinema-kitagawa-marin.gif)
